@@ -18,12 +18,16 @@
 
 <div align="center">   
   
-![image alt](https://cdn.phototourl.com/member/2026-09-12-a44a54ae-ab6a-4ecb-8917-974b4c73d249.png) 
-
+![image alt](https://cdn.phototourl.com/member/2026-09-12-6f6f0707-a1ed-4493-b071-d2c5fcdf146e.png) 
 <div align="center">            
-   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Bomb&pause=1000&color=740000&center=true&vCenter=true&width=435&lines=%22You're+going+through+a+metamorphosis%2C%22" alt="Typing SVG" /></a>
+   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Bomb&pause=1000&color=470000&center=true&vCenter=true&width=435&lines=%22You're+going+through+a+metamorphosis%2C%22" alt="Typing SVG" /></a>
 
-   ![image alt](https://cdn.phototourl.com/member/2026-09-12-a1b5f09e-c293-40e9-9199-75ba0fc67c4e.png)
+   ![image alt](https://cdn.phototourl.com/member/2026-09-12-98fae147-116e-44f7-bd45-200a18c71d72.png)
+
+<details><summary>$\color{darkred}\textsf{ 𐂯}$</summary>wip.</details>
+
+<details><summary>$\color{darkred}\textsf{ 𖹭}$</summary>.</details>
+<details><summary>$\color{darkred}\textsf{ ✚}$</summary>.</details>
 
  <h2><h2> 
 
@@ -38,6 +42,5 @@
 </p>
 
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-8533f6b1-5b30-46e2-a9c8-16dc19c508e0.png)
-
 
 ![image alt](https://cdn.phototourl.com/free/2026-09-12-db7bac64-ba18-4492-8d1c-e33bd803c735.png)
