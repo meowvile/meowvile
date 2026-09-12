@@ -16,11 +16,14 @@
 
   <h2><h2>
   
-<div align="center">   
+<div align="center">  
   
-![image alt](https://cdn.phototourl.com/member/2026-09-12-6f6f0707-a1ed-4493-b071-d2c5fcdf146e.png) 
-<div align="center">            
    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Bomb&pause=1000&color=470000&center=true&vCenter=true&width=435&lines=%22You're+going+through+a+metamorphosis%2C%22" alt="Typing SVG" /></a>
+  
+  <div align="center">     
+
+  ![image alt](https://cdn.phototourl.com/member/2026-09-12-6f6f0707-a1ed-4493-b071-d2c5fcdf146e.png) 
+
 
    ![image alt](https://cdn.phototourl.com/member/2026-09-12-98fae147-116e-44f7-bd45-200a18c71d72.png)
 
