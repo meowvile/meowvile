@@ -30,7 +30,13 @@
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-c9102952-4540-45d6-88a3-92f224b8dd37.png)
    
  ![image alt](https://cdn.phototourl.com/member/2026-09-12-d13ae806-a6b0-4726-b77e-d55e8f36eec8.png)
- 
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31sz2n4kq65c2zflztle635olszy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false">
+  </a>
+</p>
+
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-8533f6b1-5b30-46e2-a9c8-16dc19c508e0.png)
 
 
