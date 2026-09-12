@@ -15,7 +15,7 @@
 <div align="center">
 
   <h2><h2>
-
+  
 <div align="center">   
   
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-6f6f0707-a1ed-4493-b071-d2c5fcdf146e.png) 
@@ -25,11 +25,11 @@
    ![image alt](https://cdn.phototourl.com/member/2026-09-12-98fae147-116e-44f7-bd45-200a18c71d72.png)
 
 <details><summary>$\color{darkred}\textsf{ 𐂯}$</summary>wip.</details>
-
 <details><summary>$\color{darkred}\textsf{ 𖹭}$</summary>.</details>
 <details><summary>$\color{darkred}\textsf{ ✚}$</summary>.</details>
 
- <h2><h2> 
+
+ <h2>
 
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-c9102952-4540-45d6-88a3-92f224b8dd37.png)
    
