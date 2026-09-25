@@ -4,7 +4,7 @@
 
 <div align="center">
 
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=darkred&right_color=grey&title=D.A%20Sinclair&v=centerfix99" alt="Visitors" />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=darkred&right_color=gray&title=D.A%20Sinclair&v=centerfix99" alt="Visitors" />
 
 </div>
 
@@ -23,6 +23,9 @@
   <div align="center">     
 
   ![image alt](https://cdn.phototourl.com/member/2026-09-12-6f6f0707-a1ed-4493-b071-d2c5fcdf146e.png) 
+
+<a href="https://meowvile.page">strwpage</a>  ꪆ  <a href="https://meowile.page">strwpage</a>
+
 
 
    ![image alt](https://cdn.phototourl.com/member/2026-09-12-98fae147-116e-44f7-bd45-200a18c71d72.png)
