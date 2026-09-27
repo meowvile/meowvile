@@ -41,7 +41,7 @@
    
  ![image alt](https://cdn.phototourl.com/member/2026-09-12-d13ae806-a6b0-4726-b77e-d55e8f36eec8.png)
 
-![image alt](https://cdn.phototourl.com/member/2026-09-27-7b906984-7fa0-4948-a996-cce4e368284e.png) 
+![image alt](https://cdn.phototourl.com/member/2026-09-27-85174067-98ae-42cf-8856-f1037d113a1b.png) 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
