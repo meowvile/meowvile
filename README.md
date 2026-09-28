@@ -49,7 +49,7 @@
   </a>
 </p>
 
-![image alt](https://cdn.phototourl.com/member/2026-09-27-85174067-98ae-42cf-8856-f1037d113a1b.png) 
+![image alt](https://cdn.phototourl.com/member/2026-09-28-2933efe8-1736-441d-9f51-cc634f7feb48.png) 
 
 
 
