@@ -51,7 +51,15 @@
 
 ![image alt](https://cdn.phototourl.com/member/2026-09-28-2933efe8-1736-441d-9f51-cc634f7feb48.png) 
 
+![image alt](https://cdn.phototourl.com/member/2026-09-29-7f2cf66b-58cc-4553-964d-1158fd1d66fb.jpg) 
 
+![gif alt](https://media.giphy.com/media/6zAAuHvreTBa9l03T0/giphy.gif)
+
+![image alt](https://cdn.phototourl.com/member/2026-09-29-1a781e5c-3893-4e95-a306-c32d25b15a85.png) 
+
+![image alt](https://cdn.phototourl.com/member/2026-09-29-8527b903-b939-4649-a106-6b1e953e044b.png) 
+
+![image alt](https://cdn.phototourl.com/member/2026-09-29-d2859380-2a5c-4406-9a3a-68577269b3d6.jpg) 
 
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-8533f6b1-5b30-46e2-a9c8-16dc19c508e0.png)
 
