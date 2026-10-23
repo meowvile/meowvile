@@ -1,4 +1,4 @@
-![image alt](https://cdn.phototourl.com/free/2026-09-12-f16c993f-54cf-4665-9f37-2470619c979f.png)
+![image alt](https://cdn.phototourl.com/member/2026-10-23-98b148e4-297f-40e4-a8f6-7a6de1e3c969.png)
 
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-8533f6b1-5b30-46e2-a9c8-16dc19c508e0.png)
 
@@ -28,7 +28,7 @@
 
 
 
-   ![image alt](https://cdn.phototourl.com/member/2026-09-12-98fae147-116e-44f7-bd45-200a18c71d72.png)
+   ![image alt](https://cdn.phototourl.com/member/2026-10-23-eadd5e2c-18a9-4f93-9046-ec5cdd04de48.png)
 
 <details><summary>$\color{darkred}\textsf{ 𐂯}$</summary>wip.</details>
 <details><summary>$\color{darkred}\textsf{ 𖹭}$</summary>.</details>
@@ -39,9 +39,7 @@
 
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-c9102952-4540-45d6-88a3-92f224b8dd37.png)
 
-![image alt](https://cdn.phototourl.com/member/2026-09-27-0a588b2b-f7bf-4e93-89ff-d9ac7cb758ee.png)   
-
- ![image alt](https://cdn.phototourl.com/member/2026-09-12-d13ae806-a6b0-4726-b77e-d55e8f36eec8.png)
+ ![image alt](https://cdn.phototourl.com/member/2026-10-23-ff7b16a3-ad36-46be-9e07-cc1c55ddec64.png)
 
 $${\color{darkred}\text{art made by me.}}$$ 
 
@@ -51,7 +49,6 @@ $${\color{darkred}\text{art made by me.}}$$
   </a>
 </p>
 
-![image alt](https://cdn.phototourl.com/member/2026-09-28-2933efe8-1736-441d-9f51-cc634f7feb48.png) 
 
 ![image alt](https://cdn.phototourl.com/member/2026-09-30-5a974d8d-2558-4908-8abc-1b77769e25b2.jpg) 
 
@@ -71,4 +68,4 @@ $${\color{darkred}\text{art made by me.}}$$
 
 ![image alt](https://cdn.phototourl.com/member/2026-09-12-8533f6b1-5b30-46e2-a9c8-16dc19c508e0.png)
 
-![image alt](https://cdn.phototourl.com/free/2026-09-12-db7bac64-ba18-4492-8d1c-e33bd803c735.png)
+![image alt](https://cdn.phototourl.com/member/2026-10-23-9d280d4e-9ad2-4c7d-9fe3-149b81179d88.png)
