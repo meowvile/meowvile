@@ -4,7 +4,7 @@
 
 <div align="center">
 
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=darkred&right_color=gray&title=D.A%20Sinclair&v=centerfix99" alt="Visitors" />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=darkred&right_color=gray&title=D.A.%20Sinclair&v=centerfix99" alt="Visitors" />
 
 </div>
 
